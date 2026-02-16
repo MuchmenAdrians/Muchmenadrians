@@ -8,7 +8,8 @@
 
 ###
 
-<img align="right" height="150" src="https://image2url.com/r2/default/gifs/1771198757288-ef845e69-c303-4a28-9c87-a6d5b9290c45.gif"  />
+<img align="right" height="150" src="![ssstik io_@gass2kilo_1771198259743 (1)](https://github.com/user-attachments/assets/2b86a9f0-e75f-480d-8abb-05067576bfac)
+"  />
 
 ###
 
