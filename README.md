@@ -8,8 +8,7 @@
 
 ###
 
-<img align="right" height="150" src="https://github.com/user-attachments/assets/2b86a9f0-e75f-480d-8abb-05067576bfac
-"  />
+<img align="right" height="150" src="https://github.com/user-attachments/assets/2b86a9f0-e75f-480d-8abb-05067576bfac"  />
 
 ###
 
